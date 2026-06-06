@@ -1,5 +1,7 @@
 ### Lin Louis (louisophie)
 
+![books-for-healing](./back.jpeg)
+
 Life experiences, medical absurdity, debatable social issues & comments of interesting reposts from a type 1 diabetes perspective.
 
 [GitHub](https://github.com/louisophie) · [X](https://x.com/louisophie_) · [blogger](https://www.blogger.com/profile/17529498359072421715) · [wordpress](https://louisophie.wordpress.com/) ·[Email](mailto:louisophie@gmail.com)
